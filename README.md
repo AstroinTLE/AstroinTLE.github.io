@@ -1,9 +1,19 @@
 # Welcome to *AstroinTLE.github.io*
 
-My Favorite Stuff XD
+My Top Animes as of now XD
 
-Badminton 
+1. Attack on Titan
 
-Marvel
+2. Demon Slayer
 
-Anime
+3. SPY X FAMILY
+
+4. Chainsaw Man
+
+5. Jujutsu kaisen
+
+6. Bungo Stray Dogs
+
+7. Kakegurui
+
+8. My Hero Academia
