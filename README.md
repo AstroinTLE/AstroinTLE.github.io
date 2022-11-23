@@ -20,7 +20,7 @@ My Top Animes as of now XD
 
 5. Jujutsu kaisen
 
-![image](https://user-images.githubusercontent.com/118321835/203453943-ab13aeeb-d2b5-4965-9e31-b3522e9cf632.png)
+![image](https://user-images.githubusercontent.com/118321835/203454159-86a065ef-e19f-4e18-b997-c50241309430.png)
 
 6. Bungo Stray Dogs
 
