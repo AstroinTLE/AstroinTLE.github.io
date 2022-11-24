@@ -2,7 +2,7 @@
 
 My Top Animes as of now XD
 
-1. Attack on Titan
+Attack on Titan
 
 ![image](https://user-images.githubusercontent.com/118321835/203452419-5664869f-3890-4707-b5e2-058d0d000295.png)
 
@@ -12,7 +12,7 @@ An anime television series was produced by Wit Studio (seasons 1–3) and MAPPA 
 
 Attack on Titan has become a critical and commercial success. As of September 2022, the manga has over 110 million tankōbon copies in print worldwide, making it one of the best-selling manga series of all time. It has won several awards, including the Kodansha Manga Award, the Attilio Micheluzzi Award, and the Harvey Award.
 
-2. Demon Slayer
+Demon Slayer
 
 ![image](https://user-images.githubusercontent.com/118321835/203452647-5670a751-5252-49f9-99b1-601792afdf80.png)
 
@@ -22,8 +22,23 @@ A 26-episode anime television series adaptation produced by Ufotable aired from 
 
 As of February 2021, the manga had over 150 million copies in circulation, including digital versions, making it the ninth best-selling manga series of all time. Also, it was the best-selling manga in 2019 and 2020. Both the manga and its anime adaptation have received critical acclaim. The anime series has received numerous awards and is considered one of the best anime of the 2010s. In 2020, the Demon Slayer franchise generated an estimated annual sales revenue of ¥1 trillion ($8.75 billion), becoming one of the highest-grossing media franchises of all time.
 
+Horimiya
 
-3. SPY X FAMILY
+![image](https://user-images.githubusercontent.com/118321835/203674565-7bd1c9d2-fa7a-412f-a8ef-db020e63cc3b.png)
+
+Hori-san to Miyamura-kun (堀さんと宮村くん, lit. "Hori and Miyamura") is a Japanese shōnen web manga series written and illustrated by Hiroki Adachi, under the pseudonym Hero. It was self-published on Hero's website, Dokkai Ahen, from February 2007 to December 2011 in a four-panel format. The series received a print publication by Square Enix, who compiled the chapters in ten volumes under its imprint Gangan Comics from October 2008 to December 2011. Additional side-story chapters were compiled as Hori-san to Miyamura-kun Omake (堀さんと宮村くん おまけ). Since 2012, Hori-san to Miyamura-kun was adapted into an original video animation series.
+
+Daisuke Hagiwara adapted the manga under Hero's supervision under the title Horimiya (ホリミヤ), which was serialized in Monthly G Fantasy from October 2011 to March 2021,[1] and is published in English by Yen Press.[2] An anime television series adaptation of Horimiya by CloverWorks aired from January to April 2021. A live action and TV drama adaptation premiered in February 2021.
+
+MY Dress Up Darling
+
+![image](https://user-images.githubusercontent.com/118321835/203675078-bdeb21f1-ad98-491e-9b73-4d95cd288aef.png)
+
+My Dress-Up Darling (Japanese: その着せ替え人形ビスク・ドールは恋をする, Hepburn: Sono Bisuku Dōru wa Koi o Suru, transl. "That Bisque Doll Falls in Love")[b] is a Japanese manga series written and illustrated by Shinichi Fukuda. It began serialization in Square Enix's Young Gangan in January 2018, and has been compiled into ten volumes as of September 2022. An anime television series adaptation by CloverWorks aired from January to March 2022. A sequel has been announced.
+
+As of September 2022, the manga had 7.5 million copies in circulation.
+
+SPY X FAMILY
 
 ![image](https://user-images.githubusercontent.com/118321835/203452720-d94249be-44c9-49a7-ac19-ff2915db9d15.png)
 
@@ -33,7 +48,25 @@ An anime television series adaptation produced by Wit Studio and CloverWorks pre
 
 As of October 2022, Spy × Family had over 27 million copies in circulation, making it one of the best-selling manga series. The series has been praised for its storytelling, comedy, and artwork.
 
-4. Chainsaw Man
+Komi Can't Comnmunicate
+
+![image](https://user-images.githubusercontent.com/118321835/203675562-6d4e6d1c-71bc-43f7-b5b5-e42b9a115aae.png)
+
+Komi Can't Communicate (Japanese: 古見さんは、コミュ症です。, Hepburn: Komi-san wa, Komyushō Desu., lit. 'Komi Has Difficulties in Communicating.') is a Japanese manga series written and illustrated by Tomohito Oda. It has been serialized in Shogakukan's shōnen manga magazine Weekly Shōnen Sunday since May 2016, with its chapters collected in twenty-seven tankōbon volumes as of October 2022. The series is licensed in North America by Viz Media.
+
+An eight-episode live-action television drama adaptation was broadcast from September to November 2021, and an anime television series adaptation by OLM aired from October to December of the same year. A second season aired from April to June 2022. The anime series is licensed by Netflix for worldwide streaming.
+
+As of June 2022, the Komi Can't Communicate manga had over 7.4 million copies in circulation. In 2022, the manga won the 67th Shogakukan Manga Award for the shōnen category.
+
+The Disastrous Life of Saiki K
+
+![image](https://user-images.githubusercontent.com/118321835/203676094-afa2d7c7-a433-4983-9eb1-20f326d2296b.png)
+
+The Disastrous Life of Saiki K. is an anime television series produced by Egg Firm and J.C. Staff, based on the manga series created by Shūichi Asō and published in Shueisha's Weekly Shōnen Jump magazine. The series follows Kusuo Saiki, a high school student with all manner of psychic abilities, who constantly faces misery caused by both his powers and the strange people around him. The series began airing in Japan on TV Tokyo from July 4, 2016, airing five short episodes each week followed by a compilation episode, the series will contain one hundred and twenty episodes in total, along with twenty four compilation episodes. The series is licensed in North America by Funimation, who are simulcasting the series as it airs and began releasing an English dub from August 7, 2016.[1][2]
+
+For the first twelve compiled episodes, the opening theme is "Seishun wa Zankoku janai" (青春は残酷じゃない, Youth Isn't So Cruel) by Natsuki Hanae while the ending theme, also used for the short episodes, is "Psi desu - I Like You" (Ψです I LIKE YOU) by Denpagumi.inc. From the thirteenth compiled episode onwards, the opening theme is "Sai-Sai-Saikōchō!" (最Ψ最好調！, The Most Favorable!) by Denpagumi.inc while the ending theme is "Kokoro" (こころ, Heart) by Hanae. From Season 2, the first ending theme is "Saihakkenden!" (Ψ発見伝！) by Denpagumi.inc and the first opening theme is "Sairento Purizunā" (Ψレントプリズナー, the Silent Prisoners) by Hiroshi Kamiya, Daisuke Ono and Nobunaga Shimazaki. The second opening theme is "Oteage Psychics" (お手上げサイキクス, Psychics Who Have Given Up Hope) by Shiggy Jr and the second ending theme is "Duet Shite Kudasai" (Duet♥してくだΨ, Please Duet With Me) by Hiroshi Kamiya, Ai Kayano and Eri Kitamura.
+
+Chainsaw Man
 
 ![image](https://user-images.githubusercontent.com/118321835/203453170-769b7e77-9e8e-4624-8a85-8a58d1e9f227.png)
 
@@ -43,7 +76,7 @@ In North America, the manga is licensed in English by Viz Media, for both print 
 
 As of November 2022, the manga had over 20 million copies in circulation, making it one of the best-selling manga series. In 2021, it won the 66th Shogakukan Manga Award in the shōnen category and won the Harvey Awards in the Best Manga category in 2021 and 2022. Chainsaw Man has been overall well received by critics, who have commended its storytelling and characters, and have particularly highlighted its violent scenes within the context of the story.
 
-5. Jujutsu kaisen
+Jujutsu kaisen
 
 ![image](https://user-images.githubusercontent.com/118321835/203454159-86a065ef-e19f-4e18-b997-c50241309430.png)
 
@@ -53,7 +86,7 @@ Akutami wrote the series with no themes to follow but wanted to write and draw c
 
 Jujutsu Kaisen 0 received an anime film adaptation by MAPPA, which was directed by Sunghoo Park and premiered in Japan in December 2021. It was followed by a novelization and a new gag chapter written by Akutami.
 
-6. Bungo Stray Dogs
+Bungo Stray Dogs
 
 ![image](https://user-images.githubusercontent.com/118321835/203453419-4dec75df-47f0-4e44-9c4c-ad7452e70b93.png)
 
@@ -63,7 +96,7 @@ Multiple light novels have been published. An anime television series adaptation
 
 A spin-off television series adaptation of Bungo Stray Dogs Wan! aired from January to March 2021. A live-action film, Bungo Stray Dogs The Movie: Beast, was released in Japan in January 2022.
 
-7. Kakegurui
+Kakegurui
 
 ![image](https://user-images.githubusercontent.com/118321835/203453497-66ee2386-2dca-4d27-aea8-10110e9020a0.png)
 
@@ -73,7 +106,23 @@ The story of Kakegurui – Compulsive Gambler takes place at Hyakkaou Private Ac
 
 An anime television adaptation by MAPPA aired in Japan from July to September 2017. A second season, titled Kakegurui ××, aired from January to March 2019. The anime series has been licensed and streamed by Netflix outside of Japan. Two light novels based on the manga have been released by Square Enix in August 2017 and March 2019, respectively. A live-action drama adaptation aired in Japan from January to March 2018, while a second season aired in April 2019. A video game adaptation was released in November 2018, but it became inaccessible after its servers were closed down in March 2020. A film adaptation featuring the same actors from the drama premiered in May 2019. A sequel to the film premiered in June 2021.
 
-8. My Hero Academia
+KonoSuba
+
+![image](https://user-images.githubusercontent.com/118321835/203673366-885fa22b-78d1-4e10-9925-1ed9ba89abd6.png)
+
+KonoSuba: God's Blessing on This Wonderful World![Jp. 1] is a Japanese light novel series written by Natsume Akatsuki. The series follows Kazuma Sato, a boy who is sent to a fantasy world with MMORPG elements following his death, where he forms a dysfunctional adventuring party with a goddess, an archwizard, and a crusader. Originally serialized as a web novel on Shōsetsuka ni Narō between December 2012 and October 2013, KonoSuba was published as a printed light novel series by Kadokawa Shoten under the company's Kadokawa Sneaker Bunko imprint from October 2013 to May 2020. The light novel series features a divergent plot and illustrations by Kurone Mishima.
+
+A manga adaptation, illustrated by Masahito Watari and Joseph Yokobori, began serialization in Fujimi Shobo's Monthly Dragon Age magazine from October 2014. A radio drama CD was released by HobiRecords in March 2015, and an anime television series adaptation produced by Studio Deen aired in Japan between January and March 2016. A second season of the anime aired between January and March 2017.[6][7][8] A spin-off light novel series, KonoSuba: An Explosion on This Wonderful World!, began publication from July 2014. Both the light novels and the manga are licensed in North America by Yen Press. An anime film adaptation produced by J.C.Staff, titled KonoSuba: God's Blessing on This Wonderful World! Legend of Crimson, premiered on August 30, 2019. An anime television series adaptation of KonoSuba: An Explosion on This Wonderful World!, produced by Drive, is set to premiere in 2023. A third season, also by Drive, has been announced.
+
+The first mobile game released series is a Mobile RPG game called Konosuba: Fantastic Days for Android and IOS on August 19, 2021. The game was developed by Nexon, A South Korean video game company. [9]
+
+The Pet Girl of Sakurasou
+
+![image](https://user-images.githubusercontent.com/118321835/203676307-cc5b9f1d-5e11-46f9-85bc-31ca73be424a.png)
+
+The Pet Girl of Sakurasou (Japanese: さくら荘のペットな彼女, Hepburn: Sakura-sō no Petto na Kanojo, lit. "The Pet Girl of Sakura Dormitory") is a Japanese light novel series written by Hajime Kamoshida, with illustrations by Kēji Mizoguchi. ASCII Media Works published 13 volumes between January 2010 and March 2014. A manga adaptation illustrated by Hōki Kusano was serialized ASCII Media Works' Dengeki G's Magazine and Dengeki G's Comic. A drama CD was released on June 28, 2012.[2] A 24-episode anime television series adaptation by J.C.Staff aired between October 2012 and March 2013. It has been licensed by Sentai Filmworks in North America.
+
+My Hero Academia
 
 ![image](https://user-images.githubusercontent.com/118321835/203453605-04c26f6d-f470-40fd-9a3d-6d2df52ed521.png)
 
@@ -94,12 +143,24 @@ https://en.wikipedia.org/wiki/Attack_on_Titan#:~:text=It%20is%20set%20in%20a,and
 
 https://en.wikipedia.org/wiki/Demon_Slayer:_Kimetsu_no_Yaiba
 
+https://en.wikipedia.org/wiki/Hori-san_to_Miyamura-kun
+
+https://en.wikipedia.org/wiki/My_Dress-Up_Darling
+
 https://en.wikipedia.org/wiki/Spy_%C3%97_Family
+
+https://en.wikipedia.org/wiki/Komi_Can%27t_Communicate
+
+https://en.wikipedia.org/wiki/List_of_The_Disastrous_Life_of_Saiki_K._episodes
 
 https://en.wikipedia.org/wiki/Jujutsu_Kaisen_0
 
 https://en.wikipedia.org/wiki/Bungo_Stray_Dogs
 
 https://en.wikipedia.org/wiki/Kakegurui_%E2%80%93_Compulsive_Gambler
+
+https://en.wikipedia.org/wiki/KonoSuba
+
+https://en.wikipedia.org/wiki/The_Pet_Girl_of_Sakurasou
 
 https://en.wikipedia.org/wiki/My_Hero_Academia
