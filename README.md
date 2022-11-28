@@ -30,7 +30,7 @@ Hori-san to Miyamura-kun (堀さんと宮村くん, lit. "Hori and Miyamura") is
 
 Daisuke Hagiwara adapted the manga under Hero's supervision under the title Horimiya (ホリミヤ), which was serialized in Monthly G Fantasy from October 2011 to March 2021,[1] and is published in English by Yen Press.[2] An anime television series adaptation of Horimiya by CloverWorks aired from January to April 2021. A live action and TV drama adaptation premiered in February 2021.
 
-MY Dress Up Darling
+My Dress Up Darling
 
 ![image](https://user-images.githubusercontent.com/118321835/203675078-bdeb21f1-ad98-491e-9b73-4d95cd288aef.png)
 
@@ -105,16 +105,6 @@ Kakegurui – Compulsive Gambler[Jp. 1] is a Japanese manga series written by Ho
 The story of Kakegurui – Compulsive Gambler takes place at Hyakkaou Private Academy, one of Japan's most prestigious schools where, unlike normal schools, the hierarchy is determined by gambling. Yumeko Jabami is a transfer student whose beautiful, innocent façade hides a psychotic addiction to gambling and high-stakes situations. With a keen intellect able to pierce through the elaborate cheating methods used by the most powerful students to rig games in their favour, Yumeko threatens to destroy the twisted hierarchy of the school simply for the thrill of it.
 
 An anime television adaptation by MAPPA aired in Japan from July to September 2017. A second season, titled Kakegurui ××, aired from January to March 2019. The anime series has been licensed and streamed by Netflix outside of Japan. Two light novels based on the manga have been released by Square Enix in August 2017 and March 2019, respectively. A live-action drama adaptation aired in Japan from January to March 2018, while a second season aired in April 2019. A video game adaptation was released in November 2018, but it became inaccessible after its servers were closed down in March 2020. A film adaptation featuring the same actors from the drama premiered in May 2019. A sequel to the film premiered in June 2021.
-
-KonoSuba
-
-![image](https://user-images.githubusercontent.com/118321835/203673366-885fa22b-78d1-4e10-9925-1ed9ba89abd6.png)
-
-KonoSuba: God's Blessing on This Wonderful World![Jp. 1] is a Japanese light novel series written by Natsume Akatsuki. The series follows Kazuma Sato, a boy who is sent to a fantasy world with MMORPG elements following his death, where he forms a dysfunctional adventuring party with a goddess, an archwizard, and a crusader. Originally serialized as a web novel on Shōsetsuka ni Narō between December 2012 and October 2013, KonoSuba was published as a printed light novel series by Kadokawa Shoten under the company's Kadokawa Sneaker Bunko imprint from October 2013 to May 2020. The light novel series features a divergent plot and illustrations by Kurone Mishima.
-
-A manga adaptation, illustrated by Masahito Watari and Joseph Yokobori, began serialization in Fujimi Shobo's Monthly Dragon Age magazine from October 2014. A radio drama CD was released by HobiRecords in March 2015, and an anime television series adaptation produced by Studio Deen aired in Japan between January and March 2016. A second season of the anime aired between January and March 2017.[6][7][8] A spin-off light novel series, KonoSuba: An Explosion on This Wonderful World!, began publication from July 2014. Both the light novels and the manga are licensed in North America by Yen Press. An anime film adaptation produced by J.C.Staff, titled KonoSuba: God's Blessing on This Wonderful World! Legend of Crimson, premiered on August 30, 2019. An anime television series adaptation of KonoSuba: An Explosion on This Wonderful World!, produced by Drive, is set to premiere in 2023. A third season, also by Drive, has been announced.
-
-The first mobile game released series is a Mobile RPG game called Konosuba: Fantastic Days for Android and IOS on August 19, 2021. The game was developed by Nexon, A South Korean video game company. [9]
 
 The Pet Girl of Sakurasou
 
